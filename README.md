@@ -31,6 +31,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Kyle Kaplan](https://www.linkedin.com/in/kylekaplan1)
 - [Luka Marčec](https://www.linkedin.com/in/LukaMarr )
 - [Matti van de Weem](https://nl.linkedin.com/pub/matti-van-de-weem/86/407/17b)
+- [Mehak Vohra](https://www.linkedin.com/in/mehakvohra)
 - [Nabil Moosajee](https://www.linkedin.com/pub/nabil-moosajee/86/493/9b0)
 - [Nathan Pabrai](https://www.linkedin.com/in/nathanpabrai)
 - [Nazim Amin](https://www.linkedin.com/in/nazimamin)
